@@ -1,3 +1,7 @@
+# Original FOI request
+
+*This was sent to each university FOI officer in England.*
+
 Please treat this email as a request under the Freedom of Information Act. 
 
 1.      How much money has been spent on works of art for university buildings each year from 2010-2015?
